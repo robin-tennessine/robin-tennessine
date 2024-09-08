@@ -10,7 +10,7 @@ I received a Bachelor of Arts in Business English. I’m working as a commercial
 
 * 🚀 I'm based in Thailand
 * 📲 You can contact me at [robint.phonpakdee@gmail.com](mailto:robint.phonpakdee@gmail.com)
-* 🌟 your neighborhood who enjoy coffee 'n funky
+* 🌟 your hype neighborhood who enjoy coffee 'n funky 
 
 ### Skills
 
