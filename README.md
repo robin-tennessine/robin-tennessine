@@ -1,4 +1,4 @@
-# Hi 👋🏻 Glad that you visit here! My name is Robin ....🦖
+# Hi 👋🏻 My name is Robin ....🦖
 
 ======================
 
