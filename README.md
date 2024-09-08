@@ -6,7 +6,7 @@
 
 ----------------------------
 
-I received a Bachelor of Arts in Business English. I’m working as a commercial admin and am currently a graduate student in Big Data Engineering, aspiring to become a data scientist.
+I received a Bachelor of Arts in Business English. I’m working as a commercial admin and currently a part-time graduate student in Big Data Engineering, aspiring to become a data scientist.
 
 * 🚀 I'm based in Thailand
 * 📲 You can contact me at [robint.phonpakdee@gmail.com](mailto:robint.phonpakdee@gmail.com)
